@@ -1,0 +1,1 @@
+# GermancommunityCoin3.0
